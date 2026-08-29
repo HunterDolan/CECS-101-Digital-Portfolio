@@ -15,9 +15,13 @@ The purpose of this portfolio is to organize work done in this class.
 My academic goal is to finish my degree here at UTK and then get my master's degree in library science. I would also like to be a director at my local library.
 
 ## Course Projects and Activities
-
-As the course progresses, add links or folders for your major assignments,
-projects, reflections, and other work.
+Tech Trends LinkedIn-https://www.linkedin.com/learning/certificates/9d7901e6cd128ac099e93210a411db6f959c1736dbc2817d6c02deedeead74e1?trk=share_certificate
+Tech Trends Quizzes and Exam
+SWOT Analysis LinkedIn- https://www.linkedin.com/learning/certificates/e59965f2d4d27437c54f8ded7ba736fb61166556b66fa36c4927e37241a412fc?trk=share_certificate
+SWOT Analysis Quizzes
+Mod 2- SWOT Analysis 
+Empathy Map
+Quiz 2
 
 ## Skills I Am Developing
 
