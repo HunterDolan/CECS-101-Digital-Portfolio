@@ -22,7 +22,10 @@ SWOT Analysis Quizzes
 Mod 2- SWOT Analysis 
 Empathy Map
 Quiz 2
-
+SMART Methodology-https://www.linkedin.com/learning/certificates/f7a38e25639e8966103ccca63b333af42b9716caf34e9bf626b07aafd5d3487a?trk=share_certificate
+Personal POV Statement
+Connecting Career Interests to Your Degree
+Your Draft Degree Plan
 ## Skills I Am Developing
 
 Technology literacy
