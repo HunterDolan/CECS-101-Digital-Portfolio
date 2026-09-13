@@ -19,13 +19,16 @@ Tech Trends LinkedIn-https://www.linkedin.com/learning/certificates/9d7901e6cd12
 Tech Trends Quizzes and Exam
 SWOT Analysis LinkedIn- https://www.linkedin.com/learning/certificates/e59965f2d4d27437c54f8ded7ba736fb61166556b66fa36c4927e37241a412fc?trk=share_certificate
 SWOT Analysis Quizzes
-Mod 2- SWOT Analysis 
+SWOT Analysis 
 Empathy Map
 Quiz 2
 SMART Methodology-https://www.linkedin.com/learning/certificates/f7a38e25639e8966103ccca63b333af42b9716caf34e9bf626b07aafd5d3487a?trk=share_certificate
 Personal POV Statement
 Connecting Career Interests to Your Degree
 Your Draft Degree Plan
+RIASEC Assessment and Build Your Profile
+ Career Exploration Map
+ Career Vision Statement
 ## Skills I Am Developing
 
 Technology literacy
