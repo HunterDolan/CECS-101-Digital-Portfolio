@@ -29,6 +29,10 @@ Your Draft Degree Plan
 RIASEC Assessment and Build Your Profile
  Career Exploration Map
  Career Vision Statement
+ Module-5 : Prototype Mindset
+ Module-5 : Stress-Test Your Roadmap
+ Module-5 : Build Your Plan A / Plan B / Plan C Framework
+ Module-5 : Build Your Adaptive Professional Strategy
 ## Skills I Am Developing
 
 Technology literacy
