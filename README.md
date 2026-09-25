@@ -30,6 +30,12 @@ RIASEC Assessment and Build Your Profile
  Career Exploration Map
  Career Vision Statement
  Module-5 : Prototype Mindset
+ https://www.linkedin.com/learning/certificates/d44367218c49f7855957add58a4817428d280de3a2934362b7322ed4b090a255?trk=share_certificate
+ Investing in Human Skills in the Age of AI 
+ Building an Adaptability Mindset in the Age of AI
+https://www.linkedin.com/learning/certificates/e31d82950cdff0583ffb12c9d9b229f13c6275f7a6c53c4ea2fd9a18b88d6328?trk=share_certificate
+ 48-Hour Tool Adoption Challenge
+ LinkedIn Certication Completion
  Module-5 : Stress-Test Your Roadmap
  Module-5 : Build Your Plan A / Plan B / Plan C Framework
  Module-5 : Build Your Adaptive Professional Strategy
