@@ -43,6 +43,7 @@ https://www.linkedin.com/learning/certificates/e31d82950cdff0583ffb12c9d9b229f13
  https://www.linkedin.com/learning/certificates/d38474b90940e010f063298f03e76dc49b22cb7d20212bc69c3512e4975a03c9?trk=share_certificate
  Critical Thinking for More Effective Communication 
  https://www.linkedin.com/learning/certificates/a392074667484c82e8a3265d83e6b13dc46d355a93f354a96191dcf630583d44?trk=share_certificate
+ Module-7: Follow the Claim (Presentation Recording)
 ## Skills I Am Developing
 
 Technology literacy
