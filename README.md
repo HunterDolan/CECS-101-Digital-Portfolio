@@ -46,6 +46,7 @@ https://www.linkedin.com/learning/certificates/e31d82950cdff0583ffb12c9d9b229f13
  Module-7: Follow the Claim (Presentation Recording)
  Virtual Internship 
  Mid Term Salesforce+ Dreamforce 2026 Virtual Conference
+ Escape room
 ## Skills I Am Developing
 
 Technology literacy
