@@ -47,6 +47,9 @@ https://www.linkedin.com/learning/certificates/e31d82950cdff0583ffb12c9d9b229f13
  Virtual Internship 
  Mid Term Salesforce+ Dreamforce 2026 Virtual Conference
  Escape room
+ https://www.linkedin.com/learning/certificates/9c98a0883087f3f8ed9122f34933af6160583a6ac8f8285c2be226beb447b1a1?trk=share_certificate
+ https://www.linkedin.com/learning/certificates/d0c7377726638e38ea89f81b23069eee863ce547fcac5383a5074966063bf809?trk=share_certificate
+ Influence Decisions with Data and AI using Julius AI
 ## Skills I Am Developing
 
 Technology literacy
