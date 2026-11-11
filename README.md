@@ -52,6 +52,9 @@ https://www.linkedin.com/learning/certificates/e31d82950cdff0583ffb12c9d9b229f13
  Influence Decisions with Data and AI using Julius AI
  https://www.linkedin.com/learning/certificates/03d4d1a7d2f3d1e4ccba7c93d5aab4081a6cabc060ffb4ec592044ecd47fd5da?trk=share_certificate
  Module-11 : Pitch It From the Inside
+ Accelerating Your Career with Personal Branding
+
+ https://www.linkedin.com/learning/certificates/7502e7156b34ea92a395598e21c779a74b48d2602965101a5dc7849aaae28737?trk=share_certificate
 ## Skills I Am Developing
 
 Technology literacy
